@@ -1,1 +1,0 @@
-# HaynoEricPaulo.github.io
